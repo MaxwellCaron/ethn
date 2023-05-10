@@ -40,7 +40,7 @@ Over the past 3 years, there have been numerous tragic displays of anti-Asian vi
 <br><br>
 
 <p align="center">
-  <img src="https://github.com/MaxwellCaron/ethn/assets/69171981/5062defd-52de-4d0a-9a6a-467edc587c50"  width="750" height="500">
+  <img src="https://github.com/MaxwellCaron/ethn/assets/69171981/5062defd-52de-4d0a-9a6a-467edc587c50"  width="500" height="325">
 </p>
 
 <br><br>
