@@ -26,7 +26,7 @@ A hate crime is a type of violent act that is motivated by a particular bias, in
 
 <br>
 
-## Specific Cases
+## Significant Cases
 
 Over the past 3 years, there have been numerous tragic displays of anti-Asian violence across America. This blog post will be going over just two of them.
 
@@ -46,7 +46,7 @@ Over the past 3 years, there have been numerous tragic displays of anti-Asian vi
 
 ## Conclusion
 
-To summarize, the COVID-19 pandemic was the spark that lit the fire of xenophobia and biases in the United States. Over the past 3 years, we have seen a sharp increase in anti-Asian violence. On the other hand, there has also been a sharp increase in support of Asian Americans to stand up to said violence and hate crimes.
+To summarize, the COVID-19 pandemic was the spark that lit the fire of xenophobia and biases against people of Asian descent in the United States. Over the past 3 years, we have seen a sharp increase in anti-Asian violence. On the other hand, there has also been a sharp increase in support of Asian Americans to stand up to said violence and hate crimes.
 
 
  
